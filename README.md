@@ -8,8 +8,8 @@
 
 🏕️scout
 
-♈ariana
+♈
 
-#Meus contatos
+#Meuscontatos
 
 maisa.salles@escola.pr.gov.br
