@@ -10,8 +10,7 @@
 
 ♈
 
-![Uploading koogimins-dog-eyes.gif…]()
-
+![](https://media.tenor.com/-zJBfJGOC4IAAAAd/dog-smile-dog.gif)
 
 **Meus contatos**
 
